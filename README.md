@@ -6,5 +6,5 @@
 №3 HOPEFULLY YOU'LL NAVIGATE YOURSELF THROUGH THIS QUEST WISH YOU BEST OF LUCK
 
 P.S I ACTUALLY FUCKED UP)) IN THE 1ST FLOOR FOLDER AFTER GARGOLIS PLEASE CHECK OUT THE "ANGRY FLOWERS", THE LAST. THANK YOUUUUU
-
+P.S P.S I FUCKED UP AGAIN IN "ANGRY FLOWERS" FOLDER PLS CHEACK OUT LAKEOF ROT FOLDER FIRSTLY!!!!!
 ![cock](https://w7.pngwing.com/pngs/253/156/png-transparent-the-binding-of-isaac-afterbirth-plus-nicalis-wiki-playstation-4-the-binding-of-isaac-face-playstation-4-head.png)
